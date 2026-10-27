@@ -56,4 +56,5 @@ LinkedIn:
 https://www.linkedin.com/in/negin-nikfarjam-192334237/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BX0aqK0DFSX2J13BtzNMeGA%3D%3D
 
 Email
-Neginnikfarjam@yahoo.com
+neginnikfarjam2110@gmail.com
+
